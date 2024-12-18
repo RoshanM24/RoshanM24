@@ -1,4 +1,4 @@
-Hi there 👋, I am ready for an interview for an Internship starting Fall 2024, Full time (starting June 2025).
+Hi there 👋, I am ready for an interview for Full time (starting April 2025).
 
 Reasons I would be a great fit as a SDE / AI engineer are written below-
 
